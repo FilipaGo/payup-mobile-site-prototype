@@ -1,1 +1,1 @@
-PayUp Mobile Site - InVision Prototype
+PayUp Mobile Landing Page - InVision Prototype
